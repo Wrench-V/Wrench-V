@@ -2,7 +2,7 @@
 - 👀 I’m interested in making cool electronic projects
 - 🌱 I’m currently learning C
 - 💞️ I’m looking to collaborate on idunno 
-- 📫 How to reach me varundanturi@workit.com
+- 📫 How to reach me varundanturi.workit@gmail.com
 - 😄 Pronouns: ze/zem/zer
 - ⚡ Fun fact: I love me dog
 
